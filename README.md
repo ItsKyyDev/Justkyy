@@ -1,2 +1,2 @@
 # Justkyy
-skibidi toilet lvl 100 gyatt
+im 5R1Y0N0
